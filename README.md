@@ -1,5 +1,5 @@
 # Jumptask-Madagascar-
-Bookmakers groupe from Madagascar
+Bookmakers from Madagascar
 Last answer November 13
 
 4934 There are
